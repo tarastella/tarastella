@@ -2,7 +2,7 @@
 *Softly weird. Technically gifted. Born to fly.*
 
 Home: Planet Papalla   
-Location: Offline Outpost   
+Current Location: Offline Outpost   
 Website: https://tara.sh
 
 Not on social media, except [LinkedIn](https://www.linkedin.com/in/tarastella/).   
