@@ -6,4 +6,4 @@ Location: Offline Outpost
 Website: https://tara.sh
 
 Not on social media, except [LinkedIn](https://www.linkedin.com/in/tarastella/).   
-Find me in the alternate computer underground.
+Find me in the alternate computer underground ... if you can ;-)
