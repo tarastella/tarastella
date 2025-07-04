@@ -1,4 +1,4 @@
-🪐 **Broadcasting from Planet Papalla**
+🪐 **Broadcasting from Planet Papalla**  
 *Softly weird. Technically gifted. Born to fly.*
 
 Home: [Planet Papalla](https://tara.sh/papalla/)   
