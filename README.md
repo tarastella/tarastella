@@ -2,7 +2,7 @@
 *Softly weird. Technically gifted. Born to fly.*
 
 Home: [Planet Papalla](https://tara.sh/papalla/)   
-Current Location: Offline Outpost   
+Current Location: Offline Outpost, Biscuit Bay   
 Website: https://tara.sh
 
 Currently busy with [useless projects](https://tara.sh/useless_projects/).  
