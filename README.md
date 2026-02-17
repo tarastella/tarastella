@@ -6,8 +6,7 @@ Current Location: Offline Outpost, Biscuit Bay
 Website: https://tara.sh
 
 Currently busy with [useless projects](https://tara.sh/useless_projects/).  
-Not on social media anymore, just keeping 
-[LinkedIn](https://www.linkedin.com/in/tarastella/) as a glorified CV.  
+Not on social media anymore.
 Find me in the alternate computer underground ... if you can ;-)
 
 🌷 💜
