@@ -6,7 +6,7 @@ Current Location: Offline Outpost, Biscuit Bay
 Website: https://tara.sh
 
 Currently busy with [useless projects](https://tara.sh/useless_projects/).  
-Not on social media anymore.
+Not on social media anymore.   
 Find me in the alternate computer underground ... if you can ;-)
 
 🌷 💜
